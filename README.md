@@ -3,6 +3,6 @@ soy @wolkyyy
 ### I'm wolky 👋
 
 
-in progress
+in progress...
 
 
